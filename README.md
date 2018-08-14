@@ -1,2 +1,2 @@
 # xuyimin
-Just anothor repository
+You can be a good man
